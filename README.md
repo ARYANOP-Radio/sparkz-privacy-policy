@@ -1,6 +1,6 @@
 
 
-#🔸SPARKZ
+🔸SPARKZ
 
 🔸TERMS OF SERVICE & PRIVACY POLICY
 
